@@ -1,1 +1,1 @@
-# Reursos para la enseñanza de Astronomía
+# Recursos para la enseñanza de Astronomía
