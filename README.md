@@ -1,1 +1,1 @@
-# Reursos-para-ense-anza-de-Astronom-a
+# Reursos para la enseñanza de Astronomía
